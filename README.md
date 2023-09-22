@@ -1,0 +1,2 @@
+# 21stsept23_nextjsv13_day8
+21stsept23_nextjsv13_day8
